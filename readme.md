@@ -1,1 +1,1 @@
-this is my persnoal portfolio i'm learning full stack web devlopment
+hii i'm mohit RAKHADE 
